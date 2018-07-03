@@ -1,1 +1,1 @@
-# Notes-and-Ideas
+# Notes
